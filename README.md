@@ -1,0 +1,2 @@
+# mahavidya
+dasa maha vidyas
