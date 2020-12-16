@@ -1,4 +1,4 @@
-# mahavidya
-dasa maha vidyas
-kali tara shodashi bhuvaneswari bhairavi chinnamasta
-dhumavati bagalamukhi matangi kamala
+# महाविद्या
+दाश महाविद्या
+काली तारा षोडशी भुवनेश्वरी भैरवी छिन्नमस्तका
+धूमवती भागलमुखी मातङ्गी कमला
